@@ -1,1 +1,0 @@
-# clash-of-clans-market.github.io
